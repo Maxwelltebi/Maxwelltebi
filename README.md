@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-Hi, I'm Maxwell<br>I'm a CS major at Livingstone College + Mathematics Minor
+Maxwell Tebi <br> CS + Math @ Livingstone College
 
 
 ## 🌐 Socials:
